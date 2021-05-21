@@ -1,1 +1,1 @@
-# Scarica il file APK contenenten il gioco.
+# Scarica il file APK contenente il gioco.
